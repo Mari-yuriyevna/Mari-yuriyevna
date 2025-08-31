@@ -1,4 +1,4 @@
-## ABOUT ME ꕥ
+## ABOUT ME 
 ___
 
 Hi, my name is 마리 / mari / Мари :)
